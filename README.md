@@ -1,1 +1,0 @@
-# KIPD_Businessplan
